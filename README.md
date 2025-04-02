@@ -6,4 +6,4 @@ Na pasta Personagens existem subpastas, cada uma abriga um tipo de personagem, o
 
 Na pasta Mundo esta a historia principal do mundo, divindades, fragmentos de historia para o desenvolvimento dos Pc's
 
-Na pasta arquivos existem pastas organizadas da mesma forma que a pasta de personagens para armazenar as fichas e uma pasta de arquivos Extras, cartas, livros e tudo que pode ser usado na campanha
+Na pasta arquivos existem pastas organizadas da mesma forma que a pasta de personagens para armazenar as fichas e uma pasta de arquivos Extras para cartas, livros e tudo que pode ser usado na campanha
