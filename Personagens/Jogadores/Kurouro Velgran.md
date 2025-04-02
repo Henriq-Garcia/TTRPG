@@ -1,0 +1,11 @@
+## Historia
+
+Kurouro sempre foi diferente de sua família. Desde jovem, sentia uma desconexão com os valores de seus pais e irmãos, que buscavam poder e prestígio. Em contraste, Kurouro se via atraído por um caminho mais sombrio e misterioso, algo que ele não compreendia completamente. A única pessoa com quem sentia uma verdadeira ligação era seu avô, um homem enigmático que falava sobre o passado, especialmente sobre um lugar banido da história: Iskal Thalor.
+
+O avô de Kurouro, um dos poucos sobreviventes de Iskal, vivera entre os povos esquecidos desse continente exilado após a grande guerra. Ele possuía conhecimentos secretos e magia ancestral, transmitidos a Kurouro ao longo dos anos. O legado que deixou para o neto foi um artefato poderoso: *O Tomo Predatório*, também chamado por Kurouro de "o livro do bandido". Este livro mágico dava-lhe o poder de roubar magias de outros magos, tornando-se uma ferramenta essencial para os planos de Kurouro.
+
+Com esse poder, o objetivo de Kurouro se tornou claro: ele não estava interessado em riquezas ou prestígio. Seu objetivo era: roubar dos ricos e poderosos, aqueles que, na sua visão, representavam a corrupção dos reinos de Almeryon. Ele acreditava que a destruição dos reinos atuais era a única maneira de restaurar um equilíbrio perdido e punir aqueles que mantinham o poder através da opressão e da injustiça.
+
+Usando suas habilidades de ladrão e a magia predatória do Tomo, Kurouro começou a agir nas sombras, despojando os nobres, magos e líderes de suas riquezas e poderes. A cada roubo, ele não apenas acumulava mais poder, mas também enfraquecia as fundações das civilizações que ele desprezava. Seu objetivo final não era apenas enriquecer, mas **destruir os reinos atuais**, que ele via como a raiz da corrupção e do sofrimento que assolava os povos esquecidos de Iskal.
+
+Agora, com a herança de seu avô e a magia roubada dos poderosos, Kurouro segue seu caminho, cada passo o aproximando mais de seu objetivo de destruir o que restou da ordem estabelecida, enquanto busca por respostas sobre o legado de Iskal e a profecia do "Rei das Cinzas".
