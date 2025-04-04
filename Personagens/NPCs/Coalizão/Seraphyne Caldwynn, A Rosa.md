@@ -26,9 +26,7 @@ Dizem que ela guarda em seu laboratório **ecos temporais de si mesma**, versõe
 
 ## Aparência
 
-Altiva e imperturbável, **Seraphyne Caldwin** caminha como se o tempo ao seu redor obedecesse a um compasso diferente. Seus **cabelos prateados**, lisos e longos, caem como véus de seda lunar até a cintura, presos em parte por uma **tiara de obsidiana** esculpida com runas temporais. A pele é **pálida como porcelana antiga**, marcada apenas por um **símbolo arcano** que pulsa em tom azul-violáceo em sua clavícula — um vestígio de um ritual que ela mesma jamais explica.
-
-Seus olhos, de **íris âmbar com reflexos dourados**, parecem atravessar camadas do presente, observando possibilidades que ninguém mais vê. Fala pouco, e quando o faz, sua voz é **baixa e precisa**, como um decreto selado pelas próprias leis do destino.
+Cabelos prateados, lisos e longos até a cintura, presos em parte por uma **tiara de obsidiana** esculpida com runas temporais. A pele é pálida, marcada apenas por um **símbolo arcano** que pulsa em tom azul-violáceo em sua clavícula — um vestígio de um ritual que ela mesma jamais explica, olhos, de íris âmbar com reflexos dourados.
 
 Usa vestes formais compostas por um **manto azul-escuro bordado em fios de prata**, com símbolos de Mythra ocultos entre camadas de geometrias impossíveis. Sua capa, com interior carmesim e colar alto, esvoaça mesmo sem vento — um detalhe mágico que intimida mais do que encanta.
 
