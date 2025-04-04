@@ -12,7 +12,7 @@ As principais nações eram os Humanos, Elfos e Anões, nenhum deles interagiam 
 
 A "Paz" reinou durante anos, os mais antigos esconderam a historia da guerra de seus sucessores, fazendo a historia do mundo ser perdida, deuses foram esquecidos, mesmo entre os elfos a historia antiga foi proibida.
 
-Nos últimos 40 anos, as nações estabelecidas em Almeryon passaram por uma série de eventos que moldaram a sua situação politica atual. O que começou como pequenos conflitos regionais logo se transformou em uma nova Grande Guerra, dessa vez entre os mortais, unindo os reinos humanos, élficos e anões com um único propósito: eliminar aqueles que são considerados uma ameaça à civilização.
+Nos últimos 30 anos, as nações estabelecidas em Almeryon passaram por uma série de eventos que moldaram a sua situação politica atual. O que começou como pequenos conflitos regionais logo se transformou em uma nova Grande Guerra, dessa vez entre os mortais, unindo os reinos humanos, élficos e anões com um único propósito: eliminar aqueles que são considerados uma ameaça à civilização.
 
 Tudo começou com a ascensão do Rei-Orc Gathrak, O Conquistador, que conseguiu unir tribos dispersas de orcs, goblins e gigantes em um território ao norte de Almeryon. Sua visão era a de um império para os povos que sempre foram desprezados e tratados como bárbaros. Com táticas militares brutais e um domínio sobre magia, Gathrak liderou campanhas devastadoras contra os reinos vizinhos, conquistando cidades inteiras em poucas semanas.
 

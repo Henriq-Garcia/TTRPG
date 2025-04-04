@@ -1,4 +1,4 @@
-*“A história esquece os justos que se calam. Eu serei lembrado — não pelo sangue que derramei, mas pelas vidas que salvei nas sombras.”*
+_“A história esquece os justos que se calam. Eu serei lembrado — não pelo sangue que derramei, mas pelas vidas que salvei.”_
 
 ## Historia
 
