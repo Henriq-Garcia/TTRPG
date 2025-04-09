@@ -6,7 +6,7 @@ Seraphyne nasceu na nobreza arcana de **Elarion**, capital da República Mágica
 
 Seu talento chamou atenção da **Alta Profetisa de Mythra**, que, vendo na jovem um reflexo de uma antiga profecia, a tomou como aprendiz direta aos treze anos. A vida de Seraphyne passou a ser inteiramente dedicada ao templo, à magia e ao destino que lhe era traçado — mas o destino, como Mythra sempre advertia, é um fio que pode ser cortado.
 
-Aos quinze, foi convocada pela **Coalizão de Mithenor** para participar da linha de frente contra o **Império de Gathrak**, liderado pelo Rei-Orc homônimo. A guerra, com seus horrores e escolhas cruéis, começou a corroer a pureza de sua fé.
+Aos quinze, foi convocada pela **Coalizão de Mithenor** para participar da linha de frente contra o **Império de Gathrak**, liderado pelo Rei-Orc. A guerra, com seus horrores e escolhas cruéis, começou a corroer a pureza de sua fé.
 
 Foi em um dos campos de batalha em ruínas, entre os ecos de morte e os estilhaços de magia, que encontrou **Morganna, a Tecelã de Destinos** — uma das bruxas ancestrais da **Congregação das Bruxas**, que lutava ao lado dos tieflings perseguidos. Morganna não apenas derrotou Seraphyne: ela a _desconstruiu_. A batalha foi breve, mas cada feitiço, cada movimento da bruxa parecia prever o que Seraphyne faria.
 
